@@ -1,5 +1,3 @@
-## II
-
 Erst in der Abenddämmerung erwachte Gregor aus seinem schweren
 ohnmachtähnlichen Schlaf. Er wäre gewiß nicht viel später auch ohne
 Störung erwacht, denn er fühlte sich genügend ausgeruht und

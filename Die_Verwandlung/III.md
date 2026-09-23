@@ -1,5 +1,3 @@
-## III
-
 Die schwere Verwundung Gregors, an der er über einen Monat litt -- der
 Apfel blieb, da ihn niemand zu entfernen wagte, als sichtbares Andenken
 im Fleische sitzen --, schien selbst den Vater daran erinnert zu haben,

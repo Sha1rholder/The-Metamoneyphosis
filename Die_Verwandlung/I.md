@@ -1,5 +1,3 @@
-## I
-
 Als Gregor Samsa eines Morgens aus unruhigen Träumen erwachte, fand er
 sich in seinem Bett zu einem ungeheueren Ungeziefer verwandelt. Er lag
 auf seinem panzerartig harten Rücken und sah, wenn er den Kopf ein wenig
